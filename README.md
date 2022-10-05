@@ -1,0 +1,1 @@
+# Veri-Yap-ve-Alg-Odev-1
